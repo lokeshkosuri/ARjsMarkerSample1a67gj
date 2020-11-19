@@ -1,1 +1,0 @@
-# ARjsMarkerSample1a67gj
